@@ -4,8 +4,11 @@ Community Health Officer di Wahana Visi Indonesia.
 7+ tahun di STBM, WASH, dan penguatan kader Posyandu di Gorontalo dan NTT.
 
 🌐 Situs: https://fahri-m-koly.my.id
+
 💼 LinkedIn: https://www.linkedin.com/in/fahri-m-koly
+
 🆔 ORCID: https://orcid.org/0000-0001-6525-5512
+
 📸 Instagram: https://www.instagram.com/fahrimkoly
 
 <!--
